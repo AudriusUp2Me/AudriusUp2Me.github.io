@@ -1,1 +1,3 @@
-Bandau Dar Kartą Atsikąsti WEB.
+---
+---
+Bandau Dar Kartą Atsikąsti WEB. Redaguoju.
